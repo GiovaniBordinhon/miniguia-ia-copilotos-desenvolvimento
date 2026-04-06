@@ -1,0 +1,1 @@
+# miniguia-ia-copilotos-desenvolvimento
